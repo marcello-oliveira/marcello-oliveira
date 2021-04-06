@@ -1,1 +1,1 @@
-Creating value from electricity. Motivated to improve the time and space usage to make any life easier.
+Creating value from electricity. Motivated to improve the time and space usage, and make any life easier.
